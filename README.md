@@ -1,2 +1,2 @@
 # Arche
-Dieu, Moi, Sabiré, Gwendoline, 
+Dieu, Moi, Sabiré, Gwendoline, Israe, Dorian
